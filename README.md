@@ -6,7 +6,7 @@
 
 </p>
 Having a radiator in your house can usually take a lot of space in a room. This can make it hard for you to make the room presentable or to even properly arrange your stuff. Given that you have no option to relocate or take away your radiator, you should be smart enough in order to ensure that the space it covers will continue to appear good. You can easily carry this out by utilising radiator cabinets, which is a clever way to hide an unpleasant radiator and decorate a room. 
-
+<BR><BR>
 On top of that, <u><a href="https://www.radiatorcabinetsuk.co.uk/">radiator cabinets</a></u> can also add extra storage area over the radiator. It offers you more surface for your decorations, ornaments and various knickknacks. Additionally, putting a cover on your radiator can help increase safety around your house because you will not get to unintentionally touch the radiator’s hot surface. Hence, if you are also interested in obtaining a cover for your radiator, listed below are several tips that you need to take into account.
 
 <h2><center><i><b>1. Look for a trustworthy manufacturer</b><br></i></center></h2>
